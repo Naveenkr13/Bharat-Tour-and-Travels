@@ -22,5 +22,5 @@
 
 ### Contact
 
-If you want to contact with me you can reach me at [Twitter](https://sites.google.com/view/asndeveloper/).
+If you want to contact with me you can reach me at [WEBSITE](https://sites.google.com/view/asndeveloper/).
 
